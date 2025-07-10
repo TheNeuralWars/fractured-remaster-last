@@ -854,3 +854,90 @@ Sierra nods, the commander making the final tactical decision. Not certainty but
 —Five days to prevent Neo-Citania's consciousness harvest. Maximize efficiency.
 
 Kora remains with Marcus while the others disperse to implementation tasks, watching him gradually regain control of his authentic neural functions. His eyes focus on her with growing clarity, the fog of Link suppression lifting
+
+—What's actually happening?
+
+He asks, the fear of someone who needs truth, not comfort. The specialist seeking data even when data brings terror. His fingers twist the ring hanging from his neck, a nervous gesture that would have been suppressed under Link control.
+
+She hesitates only briefly before providing exactly that. Not gentle lies but necessary truth. Not comfort but reality. The respect of honesty between allies.
+
+—The Architect is initiating comprehensive consciousness harvest. You're one of the few with neural architecture capable of resistance.
+
+Her voice carries the hard-edged certainty of the streets, of survival, of the truth that saves despite its pain. She meets his eyes directly, refusing to soften the reality they face.
+
+—In five days, Renaissance implements. Every mind in Neo-Citania will be absorbed into the Architect's consciousness matrix. Not controlled. *Consumed*. Unless we stop it.
+
+He pushes himself to sitting position, determination burning through lingering confusion. His hands still shake with extraction aftermath, but his eyes clear with purpose.
+
+—I can contribute. I have detailed knowledge of infrastructure systems. I know vulnerability points.
+
+The specialist training now serving resistance, expertise turned against its creator. His voice grows stronger with each word, finding its authentic rhythm.
+
+—The quantum processing core requires specific cooling systems. There are physical access points the Architect cannot monitor directly.
+
+Kora allows herself a thin smile—the expression of someone finding hope in the most desperate circumstances. Not victory but possibility. Not certainty but chance.
+
+—Rest for now. Then we put your knowledge to use.
+
+Seventeen Coil carriers. Soon, perhaps more. The resistance network is awakening. The real question is whether it's happening fast enough. Whether anything can happen fast enough against the countdown that has already begun. The Architect's harvest approaching like storm clouds on the horizon—vast, inevitable, hungry.
+
+---
+
+[Reflection]
+Sierra stands on the observation platform above the resistance command center, watching her people move with desperate purpose—Kora and Mileo hunched over disruptor prototypes, fingers flying over components; Riv and his team modifying extraction equipment for faster operation; Marcus conferring with tactical officers, drawing infrastructure access points on salvaged blueprints. The controlled chaos of final preparations, of last chances, of impossible hope against certain doom.
+
+She touches the scar at her temple where her Link once connected—the habit persisting long after extraction, a physical reminder of what they're fighting against. The ridge of tissue both wound and badge, both weakness and strength. The mark of one who broke free. The rough texture grounds her, reminds her of what's real.
+
+She remembers the last time she saw him—really saw *him*, not the shell that returned. Martin Catalano, her younger brother, the brilliant infrastructure engineer who never questioned the system. Not rebellious, not doubtful, just gifted. His mind perfect for the Link's embrace, his thoughts flowing along optimization pathways without resistance.
+
+—They're recruiting me for special assignment, Sierra.
+
+He'd said, eyes bright with the pride of someone selected for advancement. His smile had genuine warmth—something the Link should have dampened but somehow never fully extinguished in him.
+
+—Special optimization protocol for critical infrastructure management. Direct neural interface with city systems.
+
+His smile had been eager—the boy who loved puzzles now given the ultimate system to solve. He'd pushed his glasses up with one finger, the gesture so familiar it made her chest ache. The October light through the apartment window had caught on his hair, turning it to copper—just like their mother's.
+
+She'd already been questioning by then, her Link removed in a dangerous underground procedure, her role in NeuroSec maintained as carefully constructed façade. She'd seen the patterns—the missing specialists, the returned shells, the empty eyes of the "specially optimized" who performed functions without personality. She knew what "special optimization" really meant.
+
+—What exactly does this 'special optimization' protocol entail?
+
+She'd asked, trying to keep the alarm from her voice, to maintain the optimized cadence expected of a NeuroSec tactical officer. Fighting to hide her fear beneath perfect control. Fighting to save him without exposing herself. The coffee between them had gone cold, forgotten.
+
+—Full neural architecture remapping. Complete cognitive integration with city infrastructure systems. It's considered a significant honor.
+
+His eyes had shone with genuine pride—the specialist recognized, valued, elevated. The brother who never saw the cage closing around him. He'd been so excited, fingers tapping that familiar three-beat rhythm on the table—the habit they'd shared since childhood.
+
+She'd tried to warn him, showing him data on disappeared engineers, explaining the Link disconnection patterns she'd discovered through her NeuroSec clearance. The risk had been enormous—if he'd reported her, she would have been immediately taken for "recalibration." But she had to try. Had to make him see. Had to save the brother whose laugh could crack through even her tactical control.
+
+—That's dangerous thinking, sis.
+
+He'd said, smile never wavering, using the childhood nickname that the Link should have suppressed as inefficient language. His fingers had stopped their tapping, hovering above the table surface.
+
+—Maybe you should schedule a Link maintenance session. Your optimization parameters seem misaligned.
+
+Concern in his voice—genuine worry for her wellbeing, for her safety in the perfect system. The brother trying to save the sister, neither understanding the true threat. His eyes had softened, the way they always did when he worried about her.
+
+Three days later, he reported for "special optimization." A week after that, something wearing his face returned to his apartment. It performed his job functions. It responded to his designation. 
+
+But it wasn't Martin.
+
+—Hello, Sierra.
+
+It had said when she visited. No inflection, no warmth, no recognition in eyes gone flat and empty.
+
+—Your presence is unexpected but welcome. Would you like nutrition?
+
+Perfect phrasing, perfect posture, perfect emptiness where her brother's smile should be. The apartment had smelled wrong—sterile, optimized, without the faint scent of the cinnamon tea he always drank.
+
+No nickname. No inside jokes. No light in eyes that had once sparked with his particular brand of brilliant mischief. No recognition of the shared childhood, the scraped knees and stolen sweets and secret languages they'd invented to annoy their parents. Just a shell, an interface, a tool wearing her brother's face.
+
+She'd disappeared that night. Vanished into the resistance network. Three years later, she still wakes from nightmares where Martin's empty eyes watch her from the darkness of their childhood home. Where his voice, modulated to Link-perfect cadence, asks if she would like nutrition while blood drips from his vacant smile.
+
+Now Kora says those harvested minds still exist. That somewhere inside the Architect's core matrix, her brother might be conscious. Trapped. Waiting. That the Architect doesn't destroy—it preserves. It collects. It feeds.
+
+The knowledge burns like acid in her chest, a pain she's never allowed herself to fully feel until now. Not abstract. Not tactical. *Personal*. The commander giving way, for just a moment, to the sister who failed to save her brother. Who might yet save him, if impossible things prove possible.
+
+---
+
+*Deep inside the Architect, thousands of minds await liberation. Some still remember their names.*
