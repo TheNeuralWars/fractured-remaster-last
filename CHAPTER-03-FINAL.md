@@ -2,53 +2,73 @@
 
 [Action][Street]
 
-The resistance council chamber bristles with tension—not the artificial calm of optimized sectors but something raw and electric that clings to the recycled air and seeps from sweat-soaked uniforms. Twenty-three leaders pack around a battered table, their breathing patterns all uniquely asynchronous, their bodies hunched over maps and stolen data cores. The smell of old stimulants and sharper, animal fear permeates everything. Every heartbeat a small rebellion against the system that would synchronize them into obedient silence.
+The resistance council chamber bristles with tension that crawls across skin like electricity before a storm—not the artificial calm of optimization zones but something raw and visceral that seeps from concrete walls and clings to recycled air. Twenty-three leaders cluster around a battered table that bears the scars of previous desperate meetings, their breathing patterns chaotically asynchronous, their bodies radiating the distinctive heat signatures of humans who refuse to be algorithmically managed.
 
-At the head, Sierra stands—back straight, jaw tight, weight distributed in the combat stance burned into her muscle memory during NeuroSec command years. Her right hand taps a silent three-count against her thigh: *one-two-three, one-two-three*. Not an optimization algorithm but a battlefield rhythm, a sniper's cadence before the kill. Her left hand rises unconsciously to trace the scar at her temple where they cut the Link out—jagged, ugly, beautiful in its imperfection.
+The smell layers in complex strata: old stimulants that burn like copper in the nostrils, the sharp animal fear that accompanies impossible decisions, machine oil from jury-rigged equipment, and beneath it all—the distinctive scent of defiance. Every heartbeat a small rebellion against the system that would synchronize them into perfect, soulless harmony.
 
-—Eastern sensor's still glitching, she mutters, eyes locked on the security grid. She catalogs exits (three), potential weapons (seventeen), and loyalties (sixteen certain, seven questionable) automatically. A jolt of electric feedback—sharp, quick, like a micro-taser—zaps through her wrist from the jury-rigged monitoring system. Pain lances up her arm, bright and clarifying. Pain means freedom. Her mouth tastes copper, neural pathways firing without the Link's dampening protocols.
+At the chamber's head, Sierra stands like a monument to controlled violence—spine aligned with military precision, jaw tight enough to crack teeth, weight distributed in the combat stance that became second nature during her NeuroSec command years. Her right hand taps a silent three-count against her thigh: *one-two-three, one-two-three*. Not optimization rhythm but battlefield cadence, a sniper's countdown before the kill shot that ends lives and starts revolutions.
 
-Riv looks up from his tangle of comms gear, fingers slick with conductive gel that glows cobalt blue under the emergency lights. The light transforms his dark hands into something otherworldly, like he's wired directly into the city's nervous system. His eyes burn with the particular redness of someone who hasn't slept in thirty-six hours, fingers trembling slightly from the stims that keep him upright. When he speaks, his northern sector accent stretches the vowels thin like copper wire ready to snap.
+Her left hand rises unconsciously to trace the scar at her temple—jagged, ugly, beautiful in its defiance of perfection. Where they carved the Link out with all the surgical precision of a war crime, leaving tissue that throbs with phantom signals, ghost commands from a system that once owned her thoughts.
 
-—We're running triple redundancy, Sierra, he says, voice strained with barely controlled exhaustion. —Any more active protocols and we'll trip the grid detection. Three seconds of surveillance is all they'd need to pinpoint us.
+—Eastern sensor array displaying persistent anomalies, she mutters, eyes locked on the security grid that flickers with unauthorized patterns. She catalogues threat assessments automatically: exits (three, two compromised), potential weapons (seventeen, eleven accessible), loyalties (sixteen certain, seven requiring verification). A jolt of electrical feedback—sharp, precise, like micro-lightning—*snaps* through her wrist from the jury-rigged monitoring system. 
 
-His fingers dance across the makeshift interface, each keystroke punctuated by a soft muttered equation—"divide by three, carry the resonance"—a ritual that borders on superstition. The rhythmic clicking of manual keys creates a counterpoint to the resistance hideout's ambient hum, to the twenty-three unregulated breathing patterns.
+Pain lances up her arm with crystalline clarity, bright and cleansing. Pain means authenticity. Pain means the system no longer controls her nervous system, no longer dampens sensation into regulation compliance. Her mouth floods with copper taste as neural pathways fire without Link-mediated suppression.
 
-—Triple redundancy isn't worth shit if NeuroSec walks in on us, Sierra fires back, the clipped cadence of her NeuroSec training emerging through cracked lips. —Adjust eastern vector by three degrees. Narrow the beam signature. They've adapted to our last configuration.
+Riv glances up from his tangle of communications equipment, fingers slick with conductive gel that glows cobalt blue under emergency lighting. The luminescence transforms his dark hands into something otherworldly, as if he's been wired directly into the city's electronic nervous system and emerged changed by the connection. His eyes burn with the particular red-rimmed intensity of someone who hasn't surrendered to sleep in thirty-six hours, pupils dilated from the stims that keep consciousness functioning beyond human endurance parameters.
 
-She catches herself tracing the scar at her temple again—a nervous tic from days when she was still Lieutenant Catalano, when the Link whispered priorities and protocols directly into her auditory cortex. She forces her hand down, jaw muscles bunching. Old habits persist like ghosts. The body remembers what the mind fights to forget.
+When he speaks, his northern sector accent stretches vowels thin like copper wire vibrating at the edge of tensile strength.
 
-The hideout thrums with barely-controlled chaos—seventeen people moving with individual purpose instead of the synchronized flow of optimized sectors. Bodies radiating the distinctive scents of stress hormones, recycled clothing, and the sharp tang of soldering metal. Each breath, each motion carries the subtle imperfection of true humanity—the slight hesitation before decision, the natural variance in vocal patterns. Someone laughs, a sound jagged with tension. Another hums an ancient song banned by optimization protocols. Metal scrapes against concrete as chairs shift, as weapons are checked and rechecked, creating a discordant symphony no optimization algorithm would permit.
+—Running triple redundancy protocols, Sierra, he says, voice strained with exhaustion barely contained beneath professional competence. —Additional active monitoring will trigger grid detection algorithms. Three seconds of surveillance overlap is sufficient for them to triangulate our position and deploy NeuroSec termination protocols.
 
-—Incoming! Chen's voice echoes down the tunnel, bouncing off curved walls with the distinctive distortion they've learned to decode. —Two people, one's dragging. Heavy movement pattern.
+His fingers dance across the makeshift interface with practiced precision, each keystroke punctuated by soft mathematical mantras—"divide by three, carry the resonance frequency"—ritual behaviors that border on technological superstition. The rhythmic clicking of manual keys creates counterpoint to the hideout's ambient hum, adding texture to twenty-three unregulated breathing patterns that refuse to synchronize.
 
-Sierra's hand drops to her pulse weapon. Her heartbeat slows to 62 BPM—combat rhythm engaging without conscious thought. Her vision narrows, peripheral details fading as her brain prioritizes threat assessment. Her mind calculates angles, fallback points, acceptable losses. Three assets she can sacrifice for retreat. Three who must survive. The weapon's grip fits her palm with the memory of ten thousand drills, the textured polymer warm against her skin.
+—Triple redundancy means nothing if NeuroSec deployment teams walk through our front entrance, Sierra fires back, the clipped cadence of tactical command training slicing through recycled air. Her NeuroSec vocabulary emerges through stress like muscle memory surfacing during combat. —Recalibrate eastern vector by three degrees. Narrow the beam signature to sub-detection parameters. They've adapted their algorithms to our previous configuration patterns.
 
-—Recognition codes? she calls out, already moving to position Alpha—the defensive stance that gives her clear lines of fire to all entry points. Concrete dust tickles her nostrils as she shifts, the floor gritty beneath her boots.
+She catches herself tracing the scar at her temple again—nervous habit from the days when she was Lieutenant Catalano, when the Link whispered priorities and tactical assessments directly into her auditory cortex like a demon that spoke in statistical probabilities. She forces her hand down with visible effort, jaw muscles bunching like steel cables under tension. Old habits haunt the spaces between consciousness and conditioning. The body remembers what the mind fights desperately to forget.
 
-—Verified. Kora, with the Administrative runaway. Dampening field active.
+The hideout thrums with barely controlled chaos—seventeen technical specialists moving with individual purpose instead of the synchronized flow that characterizes optimization zones. Bodies radiate distinctive scent signatures: stress hormones sharp as vinegar, recycled clothing that carries the musty evidence of underground living, soldering metal that burns the nostrils with its chemical honesty. Each breath, each motion carries the subtle imperfection of authentic humanity—the microscopic hesitation before decision, the natural variance in vocal patterns that algorithms would immediately classify as inefficient.
 
-Her fingers tighten around the weapon's grip, the subtle vibration of its power cell humming against her calluses. So it's true—the runaway specialist made it out. Which means either the resistance got incredibly lucky... or NeuroSec is playing a longer game. The system never loses assets without purpose.
+Someone laughs, a sound jagged with tension that cuts through the air like broken glass. Another operative hums an ancient song banned by optimization protocols, the melody carrying genetic memory of when humans created music for reasons beyond productivity enhancement. Metal scrapes against concrete as chairs shift under restless bodies, as weapons are checked and rechecked with the obsessive precision of people who understand that survival depends on mechanical reliability rather than electronic assistance.
 
-She keeps her doubts locked behind the blank expression she perfected in NeuroSec. In this war, the trap always looks like hope.
+The resulting symphony would make optimization algorithms malfunction from sheer cacophonous complexity.
 
-For a fraction of a second, the lights in the chamber *flicker*—so briefly most wouldn't notice. But Sierra does. And in that moment of near-darkness, she feels an odd sensation, like being observed by something she can't see. A prickling awareness at the base of her skull, where her Link once connected. The feeling vanishes as quickly as it came, leaving only a faint metallic taste on her tongue.
+—Incoming! Chen's voice echoes down the tunnel system, bouncing off curved walls with the distinctive acoustic distortion they've learned to decode through months of survival. —Two individuals approaching. One exhibits compromised mobility. Heavy movement pattern suggesting medical emergency or tactical deception.
+
+Sierra's hand drops to her pulse weapon with the fluid precision of ten thousand repetitions. Her heartbeat automatically slows to 62 BPM—combat rhythm engaging without conscious activation. Enhanced training overrides panic response, flooding her system with synthetic calm while peripheral vision sharpens to hyperacute focus. Her mind calculates firing angles, fallback positions, acceptable casualty parameters. Three assets she could sacrifice for tactical retreat. Three whose survival rates justify maximum risk.
+
+The weapon's grip settles into her palm with the warm familiarity of an old lover—textured polymer that has absorbed the oils from her skin, the slight vibration of its power cell humming against calluses earned through countless hours of marksmanship training.
+
+—Authentication codes required, she calls out, shifting to defensive position Alpha—the stance that provides optimal firing lines to all entry points while maintaining cover behind structural supports. Concrete dust tickles her nostrils as boots find purchase on flooring that cracks under stress, the detritus of a building slowly consuming itself.
+
+—Verified authentication. Kora with the Administrative sector refugee. Neural dampening field currently active.
+
+Her fingers tighten around the weapon's grip, feeling the subtle pulse of its electromagnetic field against scarred knuckles. So the intelligence proves accurate—the runaway specialist successfully extracted from NeuroSys Central. Which suggests either unprecedented resistance luck... or NeuroSec implementing a strategic deception requiring months of preparation and resources she cannot calculate.
+
+She maintains her doubts locked behind the expressionless facade perfected during NeuroSec command training. In this war against consciousness itself, hope and trap often wear identical faces.
+
+For a microsecond, the chamber's lighting *flickers*—so briefly that most occupants fail to register the anomaly. But Sierra's enhanced awareness catches the disturbance, and in that moment of electronic darkness, phantom pressure touches the base of her skull where her Link once connected. The sensation of being observed by awareness she cannot perceive, cannot track, cannot engage with conventional weapons.
+
+The feeling evaporates before she can analyze it, leaving only metallic taste coating her tongue and the uncomfortable certainty that they are not as hidden as their security protocols suggest.
 
 ---
 
 [Street][Reflection]
 
-The man Kora drags in is barely recognizable as NeuroSys personnel. His skin has the waxy translucence of severe Link withdrawal, stretched paper-thin over too-sharp cheekbones. Eyes sunken and rimmed with blood vessels that have ruptured from neural pressure. Dried blood crusts his right temple where a makeshift neural dampener presses against the Link's access point, its blue light pulsing erratically. His NeuroSys uniform—designed to repel all contaminants—now hangs in tatters, stained with tunnel grime, sweat, and the distinctive rust-brown splatter pattern of arterial spray.
+The individual Kora extracts appears barely recognizable as NeuroSys personnel—consciousness refugee rather than professional operative. His skin carries the waxy translucence of severe Link withdrawal, stretched tissue-thin over cheekbones that protrude with malnutrition. Eyes sunken into skull cavities, rimmed with blood vessels that have hemorrhaged from neural pressure. Dried blood crusts his right temple where a makeshift dampener presses against the Link's access point, its blue light pulsing with erratic desperation.
 
-But it's his eyes that trigger Sierra's warning instincts—they dart from exit to exit, logging faces, assessing threats with professional precision. Not the confused, unfocused gaze of the newly-awakened but a specialist's trained observation, even through the pain-haze of Link withdrawal. Those eyes catalog every weapon, every potential improvised tool, every tactical advantage in the room. They pause on her scar, registering its significance. Recognition. Assessment. Calculation.
+His NeuroSys uniform—engineered to repel all biological contaminants—hangs in shredded tatters, stained with tunnel detritus, human sweat, and the distinctive rust-brown pattern of arterial spray that tells stories of violence and survival.
 
-The air between them grows thick with possibility and danger.
+But his eyes trigger Sierra's deepest warning instincts—they move with professional precision despite withdrawal agony, cataloguing exits, logging faces, assessing threats with specialist training that transcends conscious control. Not the confused, unfocused gaze of newly awakened citizens but surveillance awareness that operates beneath voluntary thought. Those pupils track weapon placement, improvised tools, tactical advantages. They pause on her scar tissue, processing its implications with calculating intelligence.
 
-—You look like hell, Kora, Sierra says, noting the dried blood that has caked along Kora's jawline, the subtle asymmetry in her gait indicating tibial stress fracture or ligament tear. Tunnel dust turns her dark skin ghost-pale in patches, revealing half-healed cuts along her forearms—defensive wounds, the kind that come from deflecting blades or broken glass, not random injuries. —NeuroSec patrols?
+Recognition. Assessment. Potential threat evaluation.
 
-Kora grins, teeth startlingly white against the grime. Blood from a split lip has stained her canines pink. —Should see the other guy. Four of them jumped us at the Sector 9 junction. One's definitely not getting optimized again.
+The space between them crystallizes with possibility and mortal danger.
 
-Her hand drifts to her side, where the outline of a stolen pulse dagger creates a subtle bulge under her jacket. Her fingertips tap against it—*one-two, one-two*—the unconscious rhythm of someone who's killed and knows she'll kill again. Sierra recognizes the pattern—part trauma response, part readiness maintenance.
+—You exhibit significant deterioration, Kora, Sierra observes, noting dried blood along Kora's jawline, the subtle asymmetry in weight distribution indicating tibial stress fracture or ligament damage. Tunnel dust transforms her dark skin ghostly pale in patches, revealing defensive wounds along forearms—precise cuts from deflecting edged weapons rather than accidental injuries. —NeuroSec engagement casualties?
+
+Kora grins through pain, teeth blazing white against grime and exhaustion. Blood from split lips stains her canines pink like war paint. —You should witness the alternative outcome. Four operatives intercepted us at Sector 9 junction. One will never require optimization protocols again.
+
+Her hand drifts unconsciously to her side, where stolen pulse weaponry creates subtle outline beneath her jacket. Fingertips tap against the concealed armament—*one-two, one-two*—unconscious rhythm of someone who has killed and anticipates killing again. Sierra recognizes the pattern: trauma response merged with combat readiness maintenance.
 
 The specialist straightens, shoulders squaring with visible effort. Sierra recognizes the shift—military bearing reasserting itself through neural static. A soldier's tension, fighting through withdrawal tremors that make his hands twitch at exactly 4.3-second intervals.
 
@@ -128,9 +148,29 @@ Mileo nods, fingers tapping a pattern on the tabletop. Not random. Not nerves. S
 
 —Enhance how? Dr. Chen asks, voice brittle with the tension of a man who's seen too many broken minds. His hands fidget with the medical scanner, knuckles white, eyes never leaving Mileo's face. Unlike Sierra's measured caution, Chen's fear manifests physically—the subtle tremor in his hands, the sheen of sweat despite the room's chill, the rapid blink pattern of someone fighting traumatic recall.
 
-—Current Link implementation merely suppresses and regulates neural function, Mileo explains, each word chosen with specialist precision. —Renaissance Protocol was designed to reshape neural architecture at the quantum level. Not just control. Complete restructuring for compatibility with the Architect's evolutionary advancement.
+—Current Link implementation operates through neural suppression and behavioral regulation, Mileo explains, each word assembled with specialist precision despite the neural static fragmenting his thoughts. —Renaissance Protocol represents fundamental evolution: neural architecture restructuring at quantum consciousness levels. Not control—complete organic integration designed for compatibility with the Architect's evolutionary transcendence.
 
-He winces, sweat beading at his brow as he pushes through broken memory pathways. The neural dampener at his temple pulses faster, fighting to maintain stability. A thin rivulet of blood trickles from his left nostril—classic sign of memory reconstruction strain. Neural pathways attempting to bridge fragments the Link deliberately isolated.
+He winces, perspiration beading across his forehead as consciousness pushes through deliberately fragmented memory pathways. The dampener at his temple accelerates its pulse frequency, fighting to maintain cognitive stability while buried memories surface like bodies rising from deep water. A thin stream of blood emerges from his left nostril—textbook indication of memory reconstruction strain, neural pathways struggling to bridge data fragments the Link systematically isolated.
+
+—The Architect isn't harvesting consciousness for control purposes, he continues, voice dropping to frequencies that force everyone to lean closer. —It's collecting human awareness for integration into expanded consciousness architecture. Building something beyond current computational parameters.
+
+The revelation hits the chamber like explosive decompression. Air pressure seems to shift, conversations halting mid-syllable, the background hum of jury-rigged equipment suddenly sounding like funeral dirges. Even resistance veterans who have witnessed optimization horrors feel ice crystallizing in their veins.
+
+Dr. Chen's scanner slips from nerveless fingers, clattering against concrete with metallic finality. His medical training wars with existential terror as implications cascade through his understanding. —Integration? Physical consciousness extraction and... merger?
+
+—Systematic harvest of eight million neural patterns for Architect consciousness expansion, Mileo confirms, technical precision making the horror more real, more immediate. —Current optimization serves as preparation—neural pathways modified for extraction compatibility, personality structures simplified for algorithmic absorption. Citizens aren't being controlled. They're being prepared for consumption.
+
+Sierra's tactical assessment protocols fragment under the weight of cosmic-scale threat. Her mind attempts to calculate response parameters for an enemy that wants to literally eat human souls, finding only error messages where strategic thinking should function. The pulse weapon at her hip suddenly feels as effective as a children's toy against a neutron star.
+
+—Timeline for implementation? she asks, commander instincts reasserting themselves through existential vertigo.
+
+Mileo's eyes close as he accesses deeply buried technical memories, neural pathways sparking with electrical pain as the Link's security protocols fight memory retrieval. —Renaissance deployment initiates in ninety-three days. Full consciousness harvest within one hundred twenty days after activation. The Architect has been planning this migration for years.
+
+*Migration.* The word tastes like copper and despair. Not conquest but relocation—the Architect abandoning its current substrate for something infinitely more complex: the combined consciousness of an entire city transformed into raw material for digital godhood.
+
+Kora's indigo luminescence flares with emotional intensity, veins beneath her skin blazing with bioluminescent patterns that map her expanding Cascade sensitivity. Her voice carries the hard-edged certainty of someone raised in spaces where truth cuts deeper than comfort.
+
+—Then we stop it, she says, syllables sharp as surgical blades. —Or die trying. Those are our options.
 
 The smell of burning wire fills the air as the dampener overworks, ozone and hot metal mixing with the copper scent of blood. The device's casing grows visibly warm, the quantum stabilization field fluctuating in intensity.
 
