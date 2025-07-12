@@ -366,45 +366,39 @@ Twenty-seven days until full Renaissance implementation. Her tactical mind recal
 ---
 
 [Reflection]
-Back at the resistance hideout, Sierra finds Riv hunched over his workstation. Half-dismantled communication devices surround him, stripped for components that can't be salvaged elsewhere. His fingers fly over multiple interfaces, blue-stained from conductive gel, trembling slightly from stim overconsumption. The neural engineer's metabolism burns faster than normal—the price of enhanced cognitive function without Link regulation.
+Back at the resistance hideout, Sierra finds Riv hunched over his workstation like a man possessed, the harsh glow of multiple displays painting his face in stark blue and white. Half-dismantled communication devices surround him in organized chaos—stripped for components that can't be salvaged elsewhere, their copper innards gleaming like exposed nerves. His fingers fly over multiple interfaces with the precision of a concert pianist, blue-stained from conductive gel that smells like ozone and metal, trembling slightly from stim overconsumption. The neural engineer's metabolism burns faster than normal—the price of enhanced cognitive function without Link regulation, of pushing human consciousness beyond factory specifications.
 
-—Status report.
+A small photograph tucked into the corner of his workstation catches the light briefly—a younger Riv with an older woman, both smiling in front of what looks like a pre-optimization university laboratory. His sister, killed during the early resistance actions when security protocols were looser and hope came easier. The photograph's edges are worn from handling, the colors faded from years of underground living.
 
-She demands, dropping her tactical gear on the adjacent bench with a controlled clatter. Each item positioned with precise tactical intention—weapon, comms, falsified credentials. The tools of rebellion arranged in perfect order.
+Riv doesn't look up at Sierra's approach, his focus absolute as machine code. A thin line of dried blood traces from his left nostril to his upper lip—evidence of his own developing Serpent's Coil configuration, neural architecture straining against human limitations like an engine running beyond redline. The blood has crusted into dark flakes that catch the light when he moves, small reminders of the cost of consciousness evolution.
 
-Riv doesn't look up, his focus absolute. A thin line of dried blood traces from his left nostril to his upper lip—evidence of his own developing Coil configuration, neural architecture straining against human limitations. The blood has crusted into flakes that catch the light when he moves.
+—Neural disruptor data is flowing in from all five deployment points, he reports without preamble, his northern sector accent sharpening with excitement, words tumbling like water through broken dam. The distinctive pronunciation that marks him as someone who grew up where industry met desperate hope, where efficiency campaigns hit hardest. —Those micro-fractures in Link control? They're propagating through neural pathways like beautiful viral rebellion. The system architecture initiates repair protocols, but there's a lag—3.7 seconds of genuine consciousness before suppression re-engages.
 
-—Neural disruptor data is flowing in from all five deployment points. Those micro-fractures in Link control? They're propagating through neural pathways. The system architecture initiates repair protocols, but there's a lag—3.7 seconds of genuine consciousness before suppression re-engages.
+He pulls back from the display, rubbing eyes reddened by sleepless nights and screen glare, the whites shot through with broken capillaries from stim side effects. When he grins, the expression transforms his gaunt features, revealing the brilliant student who once believed technology could save everyone if you just worked the equations right.
 
-He pulls back from the display, rubbing eyes reddened by sleepless nights and screen glare. The whites are shot through with red veins, the irises unnaturally bright from stim side effects.
+—And here's the really beautiful part—the second wave of corrections is 12.3% less effective than the first. The third wave, 18.7% less effective. The Link's suppression capacity is experiencing diminishing returns. The brains are *learning* to resist optimization. Getting stronger with each attempt to break them.
 
-—And here's the really interesting part—the second wave of corrections is 12.3% less effective than the first. The third wave, 18.7% less effective. The Link's suppression capacity is experiencing diminishing returns. The brains are *learning*.
+—Status report, Sierra demands, dropping her tactical gear on the adjacent bench with a controlled clatter, each item positioned with precise tactical intention—weapon, comms, falsified credentials. The tools of rebellion arranged in perfect order.
 
-His northern accent thickens with excitement, words tumbling faster, consonants sharp enough to cut.
+His northern accent thickens with excitement, words tumbling faster, consonants sharp as broken glass, vowels stretched thin in the distinctive pronunciation that marks him as someone who grew up where the old industrial sectors met the new optimization zones.
 
-She glances at his monitor, where neural maps pulse with activity—bright sparks of consciousness breaking through in a dark field of suppression. Each spark represents a mind briefly touching freedom, briefly remembering itself. The visual data streams in real-time, updating with each new disruptor activation across the city. Not just data. Lives. Selves. Awakening.
+She glances at his monitor, where neural maps pulse with activity—bright sparks of consciousness breaking through in a dark field of suppression like stars in polluted sky. Each spark represents a mind briefly touching freedom, briefly remembering itself before the system crushes the light. The visual data streams in real-time, updating with each new disruptor activation across the city. Not just data. Lives. Selves. Awakening despite algorithmic murder.
 
-—That's real-time neural activity inside citizens' consciousness architecture?
+—That's real-time neural activity inside citizens' consciousness architecture? she asks, tactical assessment immediately calculating implications. The opportunity expanding beyond initial projections. The window opening wider than anticipated.
 
-She asks, tactical assessment immediately calculating implications. The opportunity expanding beyond initial projections. The window opening wider than anticipated.
+—Exactly. The moment your disruptor activated in the market, he confirms, tapping a specific data cluster with fingers that smell like copper wire and desperation. The screen's glow casts blue shadows across his face, deepening the hollows of sleeplessness, making his eyes burn like coal. —These aren't just system glitches. They're memory fragments attempting to surface through suppression layers. Authentic consciousness fighting through digital concrete.
 
-—Exactly. The moment your disruptor activated in the market.
+The monitor shows the spread—like ripples in water, like cracks in glass, like lightning branching through storm clouds. One disruption triggers another, which triggers another. Not random. Not chaos. *Pattern*. Self-organizing, self-reinforcing, self-evolving with mathematical beauty that makes his engineer's heart sing despite everything.
 
-He confirms, tapping a specific data cluster. The screen's glow casts blue shadows across his face, deepening the hollows of sleeplessness.
-
-—These aren't just system glitches. They're memory fragments attempting to surface through suppression layers. Authentic consciousness fighting through.
-
-The monitor shows the spread—like ripples in water, like cracks in glass, like lightning branching through storm clouds. One disruption triggers another, which triggers another. Not random. Not chaos. *Pattern*. Self-organizing, self-reinforcing, self-evolving.
-
-A sensation she rarely permits herself stirs in Sierra's chest—hope with a tactical application. She immediately suppresses it—optimism creates vulnerability in asymmetric warfare. But the data doesn't lie. The disruptors work better than projected. The system's suppression protocols show weakness. The perfect machine has flaws.
+A sensation she rarely permits herself stirs in Sierra's chest—hope with tactical application. She immediately suppresses it—optimism creates vulnerability in asymmetric warfare. But the data doesn't lie. The disruptors work better than projected. The system's suppression protocols show weakness. The perfect machine bleeds when cut right.
 
 —How many disruptors can we deploy with current component inventory?
 
-—Five functional units, possibly six if we cannibalize the backup communication array. But Mileo's developing something with significantly expanded capabilities.
+—Five functional units, possibly six if we cannibalize the backup communication array, Riv answers, unconsciously touching the worn photograph at his workstation's edge. —But Mileo's developing something with significantly expanded capabilities. Something that might make my sister's sacrifice finally mean something.
 
-Riv's voice drops, excitement bleeding into something more solemn. The blue light from the screens makes his face look gaunt, skull-like.
+His voice drops, excitement bleeding into something more solemn, more personal. The blue light from the screens makes his face look gaunt, skull-like, aged beyond his twenty-eight years.
 
-—Something that interfaces directly with the Yggdrasil Network.
+—Something that interfaces directly with the Yggdrasil Network itself.
 
 —Show me immediately.
 
