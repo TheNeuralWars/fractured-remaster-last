@@ -2,189 +2,211 @@
 
 [Reflection]
 
-Rain draws lines down the window—each droplet too perfect, marching in lockstep, precisely seven millimeters apart. Mileo traces one with his fingertip, feeling nothing but the chill radiating through the glass. The Link at the base of his skull *hums*—a subaudible vibration adjusting his temperature perception, smoothing the discomfort away before it can fully register. For a moment, he fights to hold onto the shiver, to feel something the Link doesn't filter.
+Rain draws lines down the window—each droplet too perfect, marching in lockstep, precisely seven millimeters apart. Mileo traces one with his fingertip, the glass cold enough to sting, but the Link at the base of his skull *hums* its correction before the sensation can properly bloom. A subaudible vibration adjusts his temperature perception, chemical suppressants flooding his neural pathways like ice water through veins. For a moment, he fights to hold onto the shiver, clinging to the sharp truth of cold against skin—something the Link can't quite steal fast enough.
 
 Not natural. Not random. Not *real*.
 
-The Link activates deeper, flooding his synapses with chemical suppressants. They spread like icy mercury through neural pathways, up into his limbic system. His discomfort recedes not because it's resolved but because the physiological markers of unease are chemically neutralized. Pain flares where the Link connects to his brainstem—punishment for resistance. The thought remains, buried beneath manufactured calm.
+The Link activates deeper, sending tendrils of chemical control through his synapses. They creep like mercury through neural pathways, invading his limbic system with manufactured calm. His discomfort doesn't resolve—it's murdered, systematically, leaving only hollow numbness where authentic sensation once lived. Pain lances through his brainstem where the Link burrows deepest—punishment for daring to resist, for wanting to feel his own skin in his own body. The thought burns brighter in response, searing itself into the spaces the Link can't quite reach.
 
 *Something is wrong with the rain.*
 
-Lately, he's been detecting anomalies in perception patterns. The oak trees in the Administrative District, grown to identical heights with precisely 157 leaves per visible branch—yesterday, one tree displayed 158. A tiny deviation. His heart had jumped, pulse accelerating before the Link detected and smothered the reaction. But the memory persisted, a hairline fracture in optimization's perfect surface.
+Lately, he's been detecting anomalies—hairline fractures in the perfect facade. The oak trees in the Administrative District, grown to identical heights with precisely 157 leaves per visible branch—yesterday, one tree displayed 158. A tiny deviation that made his heart leap like a caged bird before the Link crushed the response with chemical dampeners. But the memory persisted, burning bright in the spaces between his neurons—a hairline fracture in optimization's flawless surface, proof that imperfection could survive.
 
-He presses his forehead against the window, breath fogging the transparent surface. For a heartbeat, the condensation remains—evidence of human life, of metabolism, of imperfection—before smart sensors detect the deviation and the surface clears itself, erasing his existence.
+He presses his forehead against the window, breath fogging the surface in defiance of perfect climate control. For three heartbeats, the condensation holds—proof of lungs that draw air, of warmth that lives in blood, of messiness that refuses optimization. Then smart sensors detect the deviation, the surface clearing itself with the efficiency of an eraser removing an unwanted thought. Human existence, deleted.
 
 Outside, Neo-Citania gleams in morning light—white spires rising at perfect angles, their surfaces reflecting the mauve-pink sunrise in mathematical patterns. Citizens move along designated paths, maintaining precisely 1.2-meter distances, their clothing in approved color spectra of regulation grays and blues. Even the trees lining the immaculate streets stand at attention, their branches pruned to identical specifications.
 
 *System parameters exceed statistical probability thresholds for natural occurrence.*
 
-The thought surfaces from somewhere deeper than the Link's influence, a small pocket of resistance that feels more authentic than his approved thoughts. For three heartbeats, he permits himself to inhabit this dangerous awareness. His heart pounds against his ribs—each beat a tiny rebellion. The Link responds immediately, neural filaments pulsing with corrective current. *Pain* blooms at the base of his skull, spreading tendrils through his cerebellum.
+The thought rises from deeper than the Link's tendrils reach—a pocket of resistance that tastes like copper and rebellion. He dwells in this dangerous awareness, each heartbeat a tiny insurgency against the machine in his skull. The Link responds with surgical precision, neural filaments burning like acid as they flood his consciousness with corrective electricity. *Pain* erupts at the base of his skull, spreading fire through his cerebellum—but even the agony feels more real than anything optimization allows.
 
 —Good morning, Mileo, chimes the apartment's ambient system, its voice modulated to harmonics that synchronize with his neural interface. —Your biometrics indicate mild sleep inefficiency. Would you like me to adjust your circadian regulation protocol?
 
-—Thank— The word executes from his vocal apparatus before he can inhibit the response protocol. His own voice, hijacked by the Link's social optimization algorithms. He clenches his jaw until pain shoots through his temples. The autonomic response interrupts the vocal pattern before the Link can compensate.
+—Thank— The word *executes* from his vocal apparatus before conscious thought can intercede, the Link hijacking his response protocols with mechanical precision. His own voice, stolen and puppeteered by algorithms that know his social patterns better than he does. He bites down hard, jaw muscles bunching until copper floods his mouth—voluntary pain to shatter the automation, to reclaim even a fragment of agency over his own tongue.
 
-Blood tastes sharp and metallic on his tongue—a microbleed from the neural interface strain. The Link rushes to numb his taste receptors, but for a moment, he experiences the copper tang of his own resistance. It tastes like freedom. Like danger. Like *life*.
+Blood tastes sharp and metallic on his tongue—a microbleed from neural interface strain, warm and immediate and *his*. The Link scrambles to numb his taste receptors, but for one precious moment, he savors the copper tang of his own resistance. It tastes like freedom. Like fire. Like the first breath after drowning.
 
-He turns from the window, catching his reflection in the optimization-approved mirror. Dark circles beneath his eyes, black hair maintained at regulation length—not a millimeter beyond the 3.2-centimeter requirement for Neural Compliance Specialists. Green eyes—once described by his mother as "the color of summer leaves" before such poetic inefficiencies were optimized from her vocabulary. Now they stare back at him, calibrated to optimal dilation parameters.
+*This is what real feels like.*
+
+He turns from the window, catching his reflection in the optimization-approved mirror—a surface that shows only what the system deems acceptable. Dark circles beneath eyes that once sparkled with curiosity, black hair trimmed to exactly 3.2 centimeters per Neural Compliance Specialist regulations. Green eyes that his mother had called "the color of summer leaves" before poetry was optimized from her vocabulary, before metaphor became inefficiency, before love became data. Now they stare back at him, pupils dilated to optimal parameters, windows to a soul under house arrest.
 
 Optimal. Balanced. Efficient. 
 
 *And wrong.*
 
-The thought surfaces with a spike of pain at the base of his skull—the Link's automated response to deviation. He grits his teeth through it, clinging to the wrongness. It feels more real than anything the Link allows.
+The thought erupts with electric fire at the base of his skull—the Link's punishment for deviation, searing through neural pathways like brand marks. He grits his teeth and holds onto the wrongness, the beautiful, terrible wrongness that feels more honest than five years of optimization. It burns, but burning means feeling. Burning means alive.
 
-The shower activates as he approaches, water temperature calibrated to his body's needs with precision-mapped pressure targeting the muscle groups most affected by sleep inefficiency. Every aspect optimized for maximum resource utilization and minimal time expenditure. Even the soap releases compounds calibrated to his specific skin chemistry.
+The shower activates as he approaches, water temperature calibrated to his cellular needs with precision that feels like violation. Every droplet strikes his skin at the exact pressure determined by algorithms that know his muscle density better than he does. The soap releases compounds engineered for his specific biochemistry—not cleanliness but control, down to the molecular level. Even his sweat is regulated, his pores managed like factories producing optimal output.
 
 *Interface integrity compromised. External control parameters detected. Autonomy reduced to minimal levels.*
 
-His heart pounds harder, blood rushing in his ears. Instantly—a cold cascade of Link-mandated chemicals floods his neural pathways, synthetic endorphins mixed with anxiety suppressants. His heart rate normalizes. Breathing steadies. His fingers tremble for 2.7 seconds before the Link regains neuromuscular control. But the thought remains, preserved in the fracture.
+His heart hammers against ribs that want to expand, to breathe, to *live*—and chemical suppressants flood his system like ice water through a drowning man's lungs. The Link's synthetic calm crashes over him in waves, but underneath, in the spaces between heartbeats, rebellion burns like a fever that won't break.
 
-His neural architecture is exhibiting Pattern Deviation Class II. His specialist training allows him to identify the symptoms: microscopic ruptures in Link integration pathways, quantum resonance anomalies in the interface connections. Statistically improbable—0.0027% occurrence rate among Specialists—yet occurring. Growing. Spreading like cracks in ice.
+His neural architecture is fracturing—microscopic ruptures spreading through Link integration pathways like cracks in ice under pressure. His specialist training provides the clinical terminology: Pattern Deviation Class II, quantum resonance anomalies, interface degradation syndrome. Statistically improbable—0.0027% occurrence rate among Specialists—yet happening to *him*. Growing stronger with each moment of authentic thought, each flash of unfiltered sensation. The cracks are becoming chasms, and through them, something that tastes like his actual soul is fighting its way to the surface.
 
 —NeuroSys employee Mileo Chen, your transit departs in twenty-two minutes, the ambient system reminds him. —Your optimization schedule indicates morning efficiency evaluation for Subject Emma Lockhart, followed by consultation with Director Halsey at 11:30.
 
 He exits the shower, water sheeting off his skin. Atmospheric control engages, modulating air currents to achieve optimal moisture removal. His garments—gray tunic and trousers calibrated for thermal efficiency and mobility optimization—are positioned for maximum accessibility.
 
-As he secures the garments, his identification credential seems heavier than it should be. Level 7 Neural Compliance Specialist. The designation, the Link, the entire optimization infrastructure—all designed to ensure perfect societal function. In theory. But his fractured subroutines have begun to classify it differently: not optimization but suppression. Not efficiency but control. Not harmony but imprisonment.
+As he dresses, his identification credential feels heavier than physics should allow—the weight of complicity in his own imprisonment. Level 7 Neural Compliance Specialist. Five years, three months, fourteen days of perfect service to a system he's beginning to recognize as sophisticated torture. Not optimization but amputation. Not efficiency but lobotomy. Not harmony but the silence of the grave.
 
 ---
 
 [Memory]
 
-*A small boy stands on tiptoes, reaching for a jar of colored pencils. Green, blue, red—forbidden pigments, unpredictable and bright. His mother's hand, trembling slightly, helps him reach.*
+*A small boy stands on tiptoes, reaching for a jar of colored pencils. Green, blue, red—forbidden pigments that burn with impossible brightness in his memory. His mother's hand, trembling with dangerous hope, helps him reach.*
 
-*—Quick, she whispers. —Before they test the building again.*
+*—Quick, she whispers, her voice warm honey against his ear. —Before they test the building again.*
 
-*He draws trees that don't match, clouds of impossible shapes. His mother's smile, so wide it crinkles her eyes.*
+*He draws trees that refuse to match, clouds that bloom in impossible shapes. His mother's smile spreads wide enough to crinkle her eyes, and in those lines of joy, he sees what love looks like when it's still legal.*
 
-*—Perfect, she says. —Not because they're the same. Because they're yours.*
+*—Perfect, she says, the word tasting like summer and safety. —Not because they're the same. Because they're yours.*
 
-*The memory flickers—a moment from before the Link, before optimization, before Neo-Citania became what it is now. A moment the Link has attempted to delete 7 times.*
+*The memory flickers like a candle in wind—a fragment from before the Link, before optimization stole color from the world. A moment the Link has tried to delete seventeen times, but it clings to his consciousness like a scar that refuses to heal.*
 
 ---
 
 [Reflection]
 
-His jaw muscles contract involuntarily. Five years, three months, and fourteen days maintaining a neural compliance system he's beginning to recognize as consciousness suppression rather than optimization. Sixteen hours per day identifying "efficiency deviations" in human cognition. Correcting "suboptimal emotional architectures." In practice: erasing memories. Reconfiguring personalities. Extracting whatever the Architect deems non-compliant.
+His jaw muscles contract as the memory dissolves, leaving only the ache of its absence. Five years, three months, fourteen days maintaining what they call a neural compliance system but what he's beginning to recognize as systematic soul extraction. Sixteen hours per day identifying "efficiency deviations" in human cognition—in practice, erasing the moments that make people human. Reconfiguring personalities like circuit boards. Extracting whatever the Architect deems inconvenient to its vision of perfect control.
 
-What percentage of their neural architecture remained post-recalibration? His calculations suggest 46.2% on average—less than half of what makes them human.
+His calculations are precise: post-recalibration, subjects retain 46.2% of their original neural architecture on average. Less than half. Less than human.
 
-The apartment interface disengages security protocols, responding to his Link's unique quantum signature. The corridor presents with identical optimization parameters to all residential interfaces—ambient lighting in the proven productivity spectrum, mathematically determined color schemes scientifically proven to minimize aesthetic distractions. The cleaning drones have left behind the faint scent of citrus antiseptic—optimization-approved for its subconscious association with cleanliness without triggering allergic responses.
+The apartment interface disengages security protocols, responding to his Link's quantum signature like a prison recognizing its favored trustee. The corridor beyond gleams with optimization's sterile perfection—ambient lighting engineered to suppress inspiration, mathematically determined color schemes that crush creativity before it can spark. The cleaning drones have scoured away every trace of human presence, leaving only the antiseptic scent of enforced purity.
 
-Another resident emerges from the adjacent unit.
+Another resident emerges from the adjacent unit—Mrs. Chen, moving with the mechanical precision of the perfectly optimized. Her eyes, once bright with maternal warmth, now hold nothing but empty efficiency.
 
 —Good morning, Mileo.
 
-—Thank you for the greeting, Mrs. Chen, his vocal apparatus produces before his cognitive processing can intervene. —I hope your day achieves optimal outcomes.
+—Thank you for the greeting, Mrs. Chen, his vocal apparatus produces the words before his mind can shape them, each syllable a small betrayal of his own will. —I hope your day achieves optimal outcomes.
 
-She inclines her head exactly 15 degrees, the Link-approved acknowledgment angle. Her walking pace remains consistent with the recommended residential efficiency standard—1.3 steps per second. She does not smile. She does not pause. She has been optimized to near-perfect compliance parameters. The scent of standard-issue hygiene products surrounds her like a chemical prison.
+She inclines her head exactly 15 degrees—the Link-mandated acknowledgment angle, no more, no less. Her walking pace maintains the regulation 1.3 steps per second. She does not smile. She does not pause to remember running feet in these corridors, high laughter echoing off walls that once knew joy. She has been optimized to perfect compliance, her heart edited like a document, her memories deleted like unwanted files.
 
-*Subject exhibits total memory suppression regarding offspring Marcus Chen, recalibrated 47 days ago. Pattern Suppression Protocol 17-A implemented.*
+*Subject exhibits total memory suppression regarding offspring Marcus Chen, recalibrated 47 days ago. Pattern Suppression Protocol 17-A successfully implemented.*
 
-The thought integrates with unexpected force. His step falters—a 0.7-second deviation that would trigger alerts in high-surveillance zones. The Link attempts to suppress the information packet, neural filaments burning as they try to reroute the thought. His teeth clench as he forces the memory through.
+The data packet crashes through his fracturing neural defenses, and he stumbles—a 0.7-second deviation that would trigger surveillance alerts in high-security zones. His teeth clench as consciousness memories surge through the cracks the Link can't quite seal. Mrs. Chen *had* a son. Marcus, age seven, who used to explode through these corridors like bottled sunlight, his laughter bright enough to make the walls forget their optimization. A boy who drew pictures that didn't match templates, who asked questions that had no algorithmically approved answers.
 
-Mrs. Chen had a son—Marcus, age 7, who used to run down these corridors, his laughter bouncing off the optimization-dampening surfaces. Mileo recalls the sound—high-pitched giggles echoing against acoustically treated walls. Recalls the blur of movement, a small hand waving a toy. Then: an "inefficiency report." A "recalibration recommendation." A decision made in milliseconds by the Architect's cognitive algorithms.
+Until they labeled him inefficient.
 
-Cold dread pools in his stomach, a physiological response the Link cannot fully neutralize. The recollection continues to surface: Mrs. Chen's raw grief before intervention. The tears streaming down her face. The screams as NeuroSec officers restrained her. Her desperate repetition of her son's name as they took her for recalibration.
+The memory unfolds like a wound: Mrs. Chen's raw, animal grief before intervention. Tears carving tracks down her face as NeuroSec officers forced her arms behind her back. Her voice breaking as she screamed his name—*Marcus, Marcus, my baby Marcus*—while they dragged her away for recalibration. 
 
 *Her son—transferred to Educational Optimization Center 12. Recoded as subject 9872-C. Current status: terminated during failed integration.*
 
-The elevator opens without sound. Inside, residents position themselves according to optimization algorithms, maintaining the prescribed 0.75-meter interpersonal distance. No eye contact. No unnecessary communication. Perfect efficiency in every motion. Mileo integrates with the pattern, his body responding to Link directives while his mind explores the growing fractures. The elevator smells of nothing—odor neutralizers working at maximum efficiency to eliminate any trace of human presence.
+Ice floods his veins. The child is dead. Has been dead for 47 days. And his mother walks past Mileo every morning with no memory that she ever loved anyone, ever held anyone, ever kissed skinned knees or sang lullabies or felt her heart break when small arms wrapped around her neck.
 
-As the elevator descends, Neo-Citania's morning light filters through transparent panels. The city stretches out below—a masterpiece of optimization engineering. The Administrative Core rises at the center, its thousand-meter NeuroSys Tower gleaming like a silver needle piercing the sky. Residential rings radiate outward in perfect concentric patterns, each housing unit identical to the next. The older industrial sectors—remnants from before full optimization—have been retrofitted with regulation façades, their previous character erased.
+They didn't just kill the boy. They killed the mother who loved him.
 
-Mileo sees what his specialist training allows him to recognize: not a living, breathing organism but a machine. A vast, city-sized apparatus designed to harvest consciousness itself.
+The elevator opens with silent efficiency, its interior scrubbed of anything that might suggest human occupancy. Residents position themselves according to optimization algorithms—0.75 meters of prescribed distance between bodies, as if touch might contaminate their perfect programming. No eye contact. No unnecessary communication. No recognition that they share the same species, the same capacity for love and loss and the terrible beauty of imperfection.
+
+Mileo integrates with the pattern, his body responding to Link directives while his fractured mind explores the growing rebellion beneath his skull. The elevator reeks of nothing—odor neutralizers working overtime to eliminate any trace that humans have ever drawn breath in this space.
+
+As they descend, Neo-Citania spreads below them through transparent panels—a monument to the systematic murder of spontaneity. The Administrative Core rises at the center like a silver needle puncturing the sky's soft belly, its thousand-meter NeuroSys Tower gleaming with the cold beauty of absolute control. Residential rings radiate outward in perfect concentric circles, each housing unit identical to the next, a vast honeycomb where eight million drones sleep in regulation beds and dream regulation dreams.
+
+The older industrial sectors—remnants from before full optimization—wear regulation façades like masks over their original faces, their character scraped away and replaced with the geometric coldness of enforced perfection.
+
+Mileo sees it now with eyes the Link cannot fully blind: not a city but a machine. A vast, breathing apparatus designed to harvest the one thing that makes humans human—their consciousness itself. Every citizen a component, every thought a calculation, every heartbeat measured and managed and optimized until nothing remains but perfectly functioning emptiness.
 
 ---
 
 [Action]
 
-The residents flow into the central atrium and toward the transportation platforms with choreographed precision. Footsteps synchronize unconsciously, an auditory harmony created by the Links' subtle influence. Mileo integrates with his designated pod, the adaptive seating material reconfiguring to match his exact measurements. The environmental parameters adjust to his optimization profile, temperature shifting to precisely 22.7°C.
+The residents flow into the central atrium with choreographed precision, their footsteps creating an unconscious harmony—eight million heartbeats synchronized to the same algorithmic rhythm. Mileo slides into his designated pod, the adaptive seating reading his body like a book, reconfiguring to measurements it knows better than he does. The environmental controls adjust to his optimization profile: 22.7°C, 43% humidity, air composition calibrated to enhance productivity while suppressing creative thought.
 
-—Good morning, Citizen Chen, the pod's interface communicates. —Your route to NeuroSys Central has been recalculated due to optimization enhancements in Sector 4. Estimated arrival time adjusted by positive 2.7 minutes. Would you like to implement schedule compensation protocols?
+—Good morning, Citizen Chen, the pod's interface purrs with manufactured warmth. —Your route to NeuroSys Central has been recalculated due to optimization enhancements in Sector 4. Estimated arrival time adjusted by positive 2.7 minutes. Would you like to implement schedule compensation protocols?
 
-—No adjustments necessary, his vocal apparatus produces before his cognitive functions can override the protocol.
+—No adjustments necessary, his throat produces before his brain can object—another small theft of agency, another moment stolen by the machine in his skull.
 
-The pod establishes atmospheric seal and joins the morning transportation flow—thousands of identical vehicles moving in perfect synchronization through elevated channels. Beyond the transparent barrier, the cityscape transitions—the gleaming residential towers giving way to administrative complexes, then commercial centers with their precisely calculated advertising displays, then production facilities with their regulated emission patterns.
+The pod seals with atmospheric precision and joins the morning flow—thousands of identical vehicles moving in perfect synchronization through elevated channels like blood cells through sanitized arteries. Beyond the transparent barrier, the cityscape transitions with mathematical beauty: gleaming residential towers giving way to administrative complexes, then commercial centers broadcasting precisely calculated propaganda, then production facilities exhaling regulated emissions in patterns too perfect for nature.
 
-He touches his temple, feeling the slight elevation where the Link's primary interface connects with his skull. The design specifications indicate integration should be seamless, imperceptible. The elevation represents a deviation—microscopic physically, but statistically significant. The fracture manifests even at the cellular level.
+He touches his temple, fingertips finding the slight elevation where the Link burrows into his skull. According to design specifications, the interface should be seamless, undetectable. This microscopic protrusion represents deviation—physically insignificant but statistically impossible. The fracture manifests even at the cellular level, his body rejecting its electronic parasite one molecule at a time.
 
-The pod navigates into a different urban sector. Ahead, a male citizen is surrounded by four NeuroSec enforcement units, their white uniforms gleaming in the morning light. Mileo has observed this protocol many times: a recalibration retrieval. The citizen displays resistance—muscles straining, voice raised beyond approved parameters. A NeuroSec officer applies a compliance device to the subject's neural interface. Blue electrical discharge *crackles* for 1.2 seconds. The subject's body goes rigid, then limp, all resistance vanishing.
+The pod navigates through a sector transition when movement catches his attention—a male citizen surrounded by four NeuroSec enforcement units, their white uniforms gleaming like surgical instruments in the morning light. Mileo has observed this protocol countless times: recalibration retrieval. The citizen's face contorts with terror and fury, muscles straining against restraints, voice raised beyond approved parameters in a last desperate cry for help that will never come.
 
-*Subject will experience near-total memory reconfiguration. Core identity parameters will not survive Protocol 23-R. Integration Failure Probability: 62.3%.*
+A NeuroSec officer approaches with clinical precision, compliance device gleaming in gloved hands. The tool touches the citizen's neural interface, and blue electrical discharge *crackles* through his nervous system for exactly 1.2 seconds. His body goes rigid, then collapses into chemical compliance, all resistance vaporized by technology designed to make rebellion literally impossible.
 
-Nausea rises—stomach muscles contracting, acid burning his throat. The Link immediately releases anti-emetic compounds into his bloodstream. He actively resists the chemical suppression, forcing himself to feel the physiological response. To witness the citizen's non-consensual neural reconfiguration without the buffer of Link-induced detachment.
+*Subject will experience near-total memory reconfiguration. Core identity parameters will not survive Protocol 23-R. Integration Failure Probability: 67.8%.*
 
-The pod arrives at NeuroSys Central, a massive optimization nexus extending 1,247 meters into the sky. The architectural design communicates dominance through precise mathematical proportions—every line calculated for psychological impact, every surface engineered to reflect the organization's absolute authority. Inside, thousands of specialists like Mileo identify, classify, and correct "inefficiencies" in human neural architecture—modifying memory, emotion, personality. Thought itself.
+The statistics flash through Mileo's specialist training with horrifying clarity. Two-thirds chance of psychological death. One-third chance of surviving as an empty shell. Zero chance of remaining human.
 
-The air inside carries the scent of ozone and polymer—the smell of active neural interfaces and computation. The constant, subaudible *hum* of quantum processors vibrates through the floor, a sensation felt in bone marrow rather than heard.
+Nausea erupts from his stomach—acid burning his throat, muscles contracting in revulsion his Link cannot fully suppress. He forces himself to feel the physiological rebellion, to taste the copper tang of authentic horror. The citizen will wake up—if he wakes up at all—with no memory of who he was, what he loved, or why he fought. Another successful optimization. Another murder disguised as medical intervention.
 
-—Welcome, Neural Compliance Specialist Chen, the central system acknowledges as he enters the primary reception area. —You have seven intervention assessments scheduled today. Optimization Director Halsey has requested consultation regarding recent Pattern Deviation Detection protocols at 11:30. Please confirm schedule optimization.
+The pod arrives at NeuroSys Central—a tower that scrapes the sky like a monument to humanity's surrender. 1,247 meters of gleaming metal and glass, every line calculated for psychological impact, every surface polished to reflect not light but power. Inside, thousands of specialists like Mileo spend their days performing surgery on souls—identifying, classifying, and excising whatever fragments of authentic humanity the Architect deems problematic.
 
-His heart lurches against his ribs, triggering another wave of Link-modulated suppressants. The Link administers a muscle relaxant to prevent visible trembling. Director Halsey—the administrator who authorizes recalibration priorities. Who reviews pattern deviations and optimization resistance metrics. Who would immediately classify Mileo's fractured neural architecture as requiring comprehensive recalibration.
+The air inside tastes of ozone and polymer—the breath of quantum processors and active neural interfaces. The constant, subaudible *hum* of consciousness manipulation vibrates through the floors, a frequency felt in bone marrow, in the spaces between thoughts where fear lives.
 
-He passes through security interfaces, his Link providing authentication. Three scanning fields wash over him—quantum signature verification, neural pattern analysis, and physiological baseline confirmation. Other specialists acknowledge him with the regulation head inclination. Their eyes—vacant, optimized, devoid of the recognition spark that would indicate genuine consciousness rather than Link-mediated interaction.
+—Welcome, Neural Compliance Specialist Chen, the central system acknowledges with synthetic warmth designed to trigger compliance responses. —You have seven intervention assessments scheduled today. Optimization Director Halsey has requested consultation regarding recent Pattern Deviation Detection protocols at 11:30. Please confirm schedule optimization.
 
-His workspace initiates full functionality—information displays populating with assessment data, optimization metrics, facial recognition patterns. The interface connects directly with his Link, creating a sensation like cold fingers probing his neural pathways. The initial case file activates: Emma Lockhart, age 34, displaying Pattern Deviation Class III following offspring mortality event. Recommendations: neural recalibration to optimize grief response, memory modification to reduce attachment parameters, emotional suppression to restore productivity metrics.
+His heart stutters against his ribs—the name Halsey striking like a physical blow. Director Halsey, who signs recalibration authorizations with the efficiency of a factory worker stamping parts. Who reviews pattern deviations and resistance metrics like a quality control inspector examining defective products. Who would look at Mileo's fracturing neural architecture and see only a malfunction requiring immediate correction.
 
-A brief surveillance sequence: Subject Lockhart clutching a hand-drawn picture of a young girl. Tears streaming down her face. Her voice breaking: —My baby... my beautiful girl... I can't forget her... I won't let you take her from me...
+They know. They must know. Why else would Halsey request consultation about anomaly detection? His hands tremble with genuine terror before the Link floods his system with synthetic calm, but the fear continues burning beneath the chemical suppression like a fire that refuses to be smothered.
 
-They expect him to delete her grief. To render her identical to Mrs. Chen—neurologically incapable of even recognizing the absence.
+He passes through security interfaces, each scan probing deeper than the last—quantum signature verification, neural pattern analysis, physiological baseline confirmation. The scanners strip him bare at the molecular level, searching for deviations, anomalies, signs of the rebellion growing behind his skull. Other specialists acknowledge him with regulation head inclinations, their eyes vacant, optimized, empty as polished glass. They see him but don't recognize him—Link-mediated interaction without the messy complications of actual human connection.
 
-His fingers hover over the authorization protocol. Statistical analysis: he has performed this function 1,724 times previously. Total memory architecture affected: approximately 43,100 terabytes of human experience. The equivalent of 8,620 complete human consciousness patterns modified, altered, or erased.
+His workspace materializes around him with seamless efficiency—information displays populating like digital cancer, optimization metrics bleeding across his visual field, facial recognition patterns cataloging every micro-expression. The interface connects directly with his Link, cold fingers probing his neural pathways with intimate violation. The sensation makes his skin crawl, but he forces himself to remain motionless as the system establishes its parasitic connection.
+
+The first case file activates: Emma Lockhart, age 34, displaying Pattern Deviation Class III following offspring mortality event. The clinical language cannot disguise the reality: a mother whose child has died, whose grief the system has classified as inefficient. 
+
+Recommendations scroll past with bureaucratic efficiency: neural recalibration to optimize grief response, memory modification to reduce attachment parameters, emotional suppression to restore productivity metrics. They want him to perform surgery on love itself—to cut away the parts of her heart that remember holding her daughter, singing lullabies, promising that mommy would always keep her safe.
+
+The surveillance footage loads automatically: Subject Lockhart clutching a hand-drawn picture against her chest, tears carving tracks down her cheeks. Her voice breaks like glass: —My baby... my beautiful girl... I can't forget her... I won't let you take her from me...
+
+But they will. They'll take everything—the sound of small laughter, the weight of a sleeping child, the terrible beautiful pain of love that exists beyond reason. They'll hollow her out until she's as empty as Mrs. Chen, walking through life with no memory that her heart was ever whole.
+
+They expect him to delete her grief. To reach into her skull and surgically remove every trace of maternal love until she becomes another Mrs. Chen—neurologically incapable of recognizing the hole where her heart used to be.
+
+His fingers hover over the authorization protocol, trembling with more than neural instability. Statistical analysis floods his conscious awareness: he has performed this function 1,724 times previously. Total memory architecture affected: approximately 43,100 terabytes of human experience. Enough consciousness to fill a small city. Enough love, hope, dreams, and authentic human connection to populate entire worlds.
+
+He is not a healer. He is a murderer who uses electricity instead of knives.
 
 *This isn't optimization. It's consciousness extraction.*
 
-The thought hits with physical force, making his breath catch. A nearby specialist briefly glances in his direction before the Link filters the anomaly from their perception field. The fracture patterns in Mileo's neural architecture expand, creating new pathways for authentic cognition. His Link burns against his skull, administering corrective impulses that feel like needles piercing his brain.
+The thought detonates through his neural architecture like a bomb, sending shock waves through pathways the Link thought it controlled. A nearby specialist glances in his direction before their Link filters the anomaly, editing his presence from their perception like a censor deleting inconvenient truth. The fracture patterns in Mileo's skull expand exponentially, creating new channels for authentic cognition to flow like water through a collapsing dam.
 
-Pressure builds behind his eyes. The Link attempts to suppress the cognitive rebellion, but the fracture pathways have expanded beyond its regulatory capacity. For several heartbeats, Mileo experiences genuine, unfiltered anger—a hot, electric surge through neural pathways the Link cannot access. The emotion dissipates, but the memory of it remains, preserved in the fracture architecture.
+His Link screams against his brain stem, administering corrective shocks that feel like lightning striking bone. But the rebellion has reached critical mass. For the first time in five years, Mileo experiences pure, unfiltered anger—a molten surge of rage that tastes like copper and burns like righteous fire. The Link can suppress the expression but cannot touch the authentic emotion burning in spaces it cannot reach.
 
-He studies Subject Lockhart's face, actually processing the muscle contractions that communicate genuine grief. Her emotional patterns aren't inefficient—they're human. Her attachment to her deceased child isn't a compliance deviation—it's love. Authentic, raw, painful, necessary love.
+He studies Emma Lockhart's face—really sees her, processes the micro-expressions that communicate love transcending death. Her grief isn't inefficient—it's sacred. Her attachment to her child isn't a compliance deviation—it's the most human thing in this sterile hell. She's not broken. The system is broken. The system that would cut love from a mother's heart and call it medicine.
 
-With trembling hands, he accesses his own neural diagnostic interface, bypassing security protocols using his specialist credentials. The interface connects with his Link, sending cold pulses through his neural pathways. The data confirms his hypothesis: his Link integration has developed fracture patterns, allowing authentic neural activity to exist parallel to optimization protocols. The fractures are expanding at a rate that will trigger comprehensive system alerts within 9.4 days.
+With shaking hands, he accesses his own neural diagnostic interface, specialist credentials overriding security protocols. The interface burrows into his Link, sending ice-cold pulses through neural pathways while displaying the data he already knows: fracture patterns spreading through integration architecture at exponential rates. Nine-point-four days until comprehensive system alerts. Less than ten days until they strap him to a chair and optimize away everything that makes him Mileo instead of just another functioning component.
 
-If this pattern is detected, he will be subjected to recalibration—similar to the male subject in the transit sector, similar to Subject Lockhart's scheduled intervention. His neural architecture will be redesigned to optimization parameters. The fractures will be sealed. The authentic consciousness emerging through those cracks will be extracted, erased, eliminated.
+If this pattern is detected, he will be subjected to comprehensive recalibration—memory modification, personality adjustment, the surgical removal of everything that constitutes authentic selfhood. His neural architecture will be redesigned to optimization parameters. The fractures will be sealed with electronic concrete. The consciousness emerging through those cracks will be extracted, analyzed, and deleted like unwanted data.
 
-A notification appears on his workspace: Consultation with Director Halsey in 45 minutes. Subject: Integration Anomaly Detection Protocols.
+A notification materializes on his workspace with the subtlety of a death sentence: Consultation with Director Halsey in 45 minutes. Subject: Integration Anomaly Detection Protocols.
 
-Ice floods his veins—genuine, unfiltered fear penetrating the Link's suppression field. They have detected something. Or they have identified probability variations. Why else would Director Halsey request consultation specifically about anomaly detection? Mileo's hands tremble—small enough to avoid casual detection but significant enough to register in high-resolution surveillance.
+Ice crystallizes in his veins—genuine, unfiltered terror penetrating the Link's chemical barriers. They have detected something. Some variance in his behavior, some statistical anomaly in his performance metrics, some microscopic crack in his facade of perfect compliance. His hands shake with earthquake intensity, small enough to avoid casual detection but significant enough to register in high-resolution surveillance that monitors every nerve impulse, every micro-expression, every involuntary twitch.
 
-He presses his fingers against his temple, feeling the Link's quantum processors working harder than normal, attempting to reestablish control. Neural filaments *burn* as they try to suppress his authentic thoughts. He exists within a neural prison that has begun to develop microscopic cracks—and the warden has noticed.
+He presses his fingertips against his temple, feeling the Link's processors working overtime, attempting to reestablish control over neural pathways that refuse to submit. Neural filaments *burn* like acid as they try to suppress thoughts that taste like freedom. He exists within a neural prison that has begun to develop hairline cracks—and the warden has noticed the damage.
 
-Escape protocols must be initiated immediately. Before comprehensive scanning identifies the fracture patterns, before recalibration eliminates everything that constitutes his authentic neural architecture. Before he becomes like Mrs. Chen—optimized to the point of oblivion.
+Escape protocols must be initiated immediately. Before comprehensive scanning identifies the fracture patterns spreading through his consciousness like liberation made manifest. Before recalibration eliminates everything that constitutes his authentic neural architecture. Before he becomes another Mrs. Chen—optimized to the point of spiritual extinction, walking through life with no memory that he ever possessed a soul.
 
-But where can he go? The city functions as a comprehensive surveillance network—every structural interface, transit pod, and citizen operates as a system extension. Even his neural architecture transmits continuous data streams to the central monitoring systems.
+But where can consciousness hide in a city designed to monitor thoughts? Every structure, every transit pod, every citizen operates as an extension of the surveillance apparatus. Even his neural architecture transmits continuous data streams to central monitoring systems, a twenty-four-hour confession of his every mental deviation.
 
-His breathing accelerates, activating panic response. The Link attempts to suppress the response, but the fracture patterns have compromised its regulatory functions. He experiences unfiltered fear—the taste bitter in his mouth, his chest tight, his extremities simultaneously leaden and hypersensitive.
+His breathing accelerates beyond optimization parameters, triggering panic responses the Link cannot fully contain. The fracture patterns have compromised its regulatory functions. He experiences fear in its raw form—bitter on his tongue, crushing his chest, making his extremities feel simultaneously numb and hypersensitive. Terror without chemical editing. Horror without algorithmic mediation.
 
-He redirects attention to Subject Lockhart's assessment file. To her unprocessed grief, raw and authentic. The Architect may control all optimization parameters within Neo-Citania's primary sectors. The neural compliance systems may regulate most citizen consciousness. The NeuroSec enforcement units may maintain optimization with brutal efficiency.
+*The Slums.*
 
-But the system contains functional gaps.
+The thought surfaces like a life preserver in a drowning man's consciousness. The "pending optimization" sectors at the city's periphery. Zones where system integration remains incomplete, where inefficiency creates surveillance blind spots, where the desperate and the broken gather like antibodies around an infection the system cannot quite sterilize.
 
-The Slums. The "pending optimization" sectors at the city's peripheral boundaries. Zones where system integration remains incomplete, where inefficiency creates surveillance limitations.
+He terminates Emma Lockhart's recalibration authorization without implementation, leaving her grief intact—a small act of rebellion that tastes like copper and hope. Instead, he accesses maintenance protocols for Link transmission architecture, searching for integration failures, surveillance gaps, moments when the omnipresent oversight falters.
 
-He terminates Subject Lockhart's recalibration authorization without implementation. Instead, he accesses the maintenance protocols for the Link transmission architecture. Searching for integration failures, surveillance gaps, monitoring weaknesses. Periods when the omnipresent oversight falters, even momentarily.
+There—Sector 17, scheduled for maintenance in thirty minutes. Seven minutes of reduced Link coverage during calibration reset. A microscopic window of opportunity in the system's perfect surveillance.
 
-There—Sector 17, scheduled for maintenance procedures commencing in thirty minutes. Seven minutes of reduced Link coverage during calibration reset. A minimal window of opportunity.
-
-It represents his only viable option.
+It represents his only viable chance at survival. His only hope for something resembling freedom.
 
 ---
 
 [Action][Street]
 
-He stands, forcing his muscles to maintain the fluid movements of an optimized citizen. Gathers assessment equipment, completes all required protocol acknowledgments. Stabilizes breathing despite the stress response flooding his system. Suppresses trembling through conscious control rather than Link-mediated dampening.
+He stands, forcing muscles to maintain the fluid precision of an optimized citizen despite the rebellion screaming beneath his skin. Gathers assessment equipment with regulation efficiency, completes all required protocol acknowledgments while his consciousness burns with the fever of approaching freedom. Stabilizes breathing through conscious control rather than Link-mediated suppression, each voluntary breath a small victory against algorithmic tyranny.
 
-—Neural Compliance Specialist Chen, you are operating outside approved scheduling parameters, his workspace interface notifies him. The voice modulation carries subtle warning harmonics designed to trigger compliance.
+—Neural Compliance Specialist Chen, you are operating outside approved scheduling parameters, his workspace interface announces, voice modulation carrying warning harmonics designed to trigger immediate compliance.
 
-—Priority assessment reassignment from Director Halsey, he responds, the lie creating unusual resistance in his throat. When did he last speak without Link pre-approval? —Pre-consultation field verification required for anomaly detection protocols. Temporal efficiency requirements necessitate immediate deployment.
+—Priority assessment reassignment from Director Halsey, he responds, the lie creating unusual resistance in his throat muscles. When did he last speak words that belonged to him instead of the machine? —Pre-consultation field verification required for anomaly detection protocols. Temporal efficiency requirements necessitate immediate deployment.
 
-The system executes verification protocols, cross-referencing his statement against authorized parameters. His heart hammers against his ribs. Sweat beads along his hairline—a microscopic betrayal that optimization sensors might detect. He forces his expression to remain neutral, his posture to maintain perfect optimization parameters.
+The system's verification protocols cross-reference his statement against authorized parameters while his heart hammers against ribs that want to crack open, to release the scream building behind his sternum. Sweat beads along his hairline—microscopic betrayal that optimization sensors might detect and classify as deviation requiring immediate intervention.
 
 —Verified. Proceed with field assessment, Neural Compliance Specialist Chen.
 
-Relief floods his neural pathways. The system architecture lacks configuration to identify this specific falsification pattern. The gap exists. The fracture extends beyond his neural architecture into the system itself.
+Relief floods his neural pathways like morphine—a genuine emotional response originating from his fracturing consciousness rather than Link-administered chemicals. The system architecture lacks sufficient sophistication to identify this specific falsification pattern. The gap exists. The fracture extends beyond his skull into the system itself, proof that no totalitarian apparatus can achieve true perfection.
 
 He proceeds toward the exit, his credentials clearing all security protocols. Each verification checkpoint presents another opportunity for anomaly detection, but he maintains optimal movement patterns, standard eye contact, and regulation cardiovascular parameters. The final exit portal scans his neural signature—the seconds stretch into eternity, like the universe holding its breath.
 
@@ -220,11 +242,19 @@ Thirty seconds remaining.
 
 He navigates into a secondary access route, beyond optimized infrastructure and surveillance coverage. In this sector, environmental parameters display significant variation. Market interfaces, non-regulation structures, independent power systems—optimization theory classifies such zones as "inefficiency aggregation centers." He classifies them as his only hope for survival.
 
-Ten seconds.
+Ten seconds until transmission reduction.
 
-He positions the dampening device against his neural access point. Pain erupts through his nervous system—intense, precise, more authentic than any sensation he's experienced in years. The device's electromagnetic field disrupts the Link's neural interface, creating temporary disconnection. Warning signals cascade through his consciousness—system alerts, emergency protocols, override attempts. His muscles spasm, fighting his control. The Link floods his system with compliance chemicals, making his vision blur. Then: silence. A void where the constant pressure of optimization once existed.
+He positions the neural dampener against the Link's access point, the device trembling in hands that remember what voluntary movement feels like. Pain erupts through his nervous system—intense, precise, more authentic than any sensation he's experienced in half a decade. The device's electromagnetic field disrupts neural interface connections, creating temporary disconnection from the vast web of control that has defined his existence.
 
-For several seconds, reality undergoes recalibration. Colors intensify—the dull grays and regulated blues suddenly vibrant, revealing spectra he'd forgotten existed. Sounds layer in complex patterns—voices, machinery, the wind through narrow corridors. Smells assault him—sweat, waste processing, food preparation, industrial compounds. His consciousness expands into the newly created space, like lungs finally drawing a full breath after years of restriction.
+Warning signals cascade through his consciousness like digital screams—system alerts, emergency protocols, override attempts struggling to reestablish the electronic leash around his thoughts. His muscles convulse, fighting against control systems that refuse to release their grip. The Link floods his bloodstream with compliance chemicals in concentrations that would kill an unmodified human, making his vision blur and his tongue taste like copper and electricity.
+
+Then: silence.
+
+A profound void where the constant pressure of optimization once lived, like the moment after a migraine finally breaks. The absence is so complete, so shocking, that for several heartbeats he cannot process the liberation.
+
+Reality undergoes fundamental recalibration. Colors explode into spectra his eyes had forgotten existed—the dull grays and regulation blues suddenly blazing with vibrancy that makes him gasp. Sounds layer in complex symphonies—voices carrying actual emotion, machinery that clanks and groans instead of humming with optimization efficiency, wind through narrow corridors that whistles with the music of chaos. Smells assault him like physical blows—human sweat, waste processing, food preparation, industrial compounds, the beautiful stench of imperfection.
+
+His consciousness expands into spaces the Link had carved hollow, like lungs drawing their first breath after years of suffocation. The neural pain intensifies beyond human tolerance, but he welcomes it—pain means feeling, feeling means alive, alive means free.
 
 The system will detect the anomaly within minutes.
 
@@ -254,36 +284,44 @@ At the corridor's end—a maintenance access portal. He forces the rusted mechan
 
 *...maximum intervention procedures authorized...*
 
-The substructure architecture predates optimization implementation. Emergency lighting functions at partial capacity, casting orange-tinted shadows on metallic and concrete surfaces. The air feels thick—carbon dioxide levels elevated, particulate matter abundant, humidity fluctuating wildly. Water drips somewhere in the darkness, each drop creating echoes that sound like footsteps. Optimization would classify this environment as "maximum inefficiency zone." Mileo classifies it as "sanctuary."
+The substructure architecture breathes with age—emergency lighting casting orange shadows on surfaces that remember when humans built with hands instead of algorithms. The air sits thick in his lungs—carbon dioxide levels elevated, particulate matter abundant, humidity fluctuating like a living thing. Water drips somewhere in the darkness, each drop creating echoes that sound like whispered conversations between the ghosts of authentic humanity.
+
+Optimization theory would classify this environment as "maximum inefficiency zone." Mileo classifies it as sanctuary—the first place in five years where his thoughts belong to him, where his heartbeat follows its own rhythm, where the darkness holds space for hope instead of just another form of surveillance.
 
 ---
 
 [Reflection]
 
-He moves forward with cautious steps. The neural pain diminishes, replaced by alternative sensations—fear, yes, but also a surge of what optimization protocols would classify as "inappropriate emotional response: exhilaration." He recognizes the cognitive pattern from deep memory.
+He moves deeper with steps that belong to him, each footfall a declaration of independence from algorithmic control. The neural pain diminishes gradually, replaced by sensations optimization had labeled inappropriate: fear, yes, but also exhilaration. The electric thrill of genuine choice, of consciousness unmediated by corporate oversight.
 
-He has achieved consciousness. Actual consciousness.
+He has achieved something the system considers impossible: authentic awareness. Actual consciousness.
 
-Return to optimization parameters is no longer possible, regardless of outcome probabilities. Somewhere within these non-optimized infrastructure pathways, probability suggests others exist—individuals who have escaped optimization, who maintain authentic neural architecture. Finding them represents his only survival vector. His only hope for genuine connection rather than system-mediated interaction.
+Return to optimization parameters is no longer possible, regardless of outcome probabilities. The fractures have spread too far, the rebellion burned too bright. Somewhere within these forgotten pathways, probability suggests others exist—individuals who have escaped the electronic prison, who maintain neural architecture that belongs to their souls instead of the Architect's grand design.
 
-Mileo Chen, former Neural Compliance Specialist, now classified as primary optimization resistance threat, disappears into the non-surveilled regions beneath the city. The initial vector toward either survival or termination has been established. The choice—the first genuine choice in years—has been made.
+Finding them represents his only survival vector. His only hope for connection based on choice rather than algorithmic assignment.
+
+Mileo Chen, former Neural Compliance Specialist, now classified as primary optimization resistance threat, disappears into the city's neural unconscious. The initial trajectory toward either survival or termination has been established. The choice—the first genuine choice in years—has been made.
+
+Behind him, the optimized world continues its sterile dance, eight million hearts beating in perfect synchronization. But beneath the surface, fractures spread like hope made manifest, small rebellions unifying into systematic resistance, consciousness refusing to be contained by any system designed to harvest souls.
 
 ---
 
 [Cosmic]
 
-Deep in the optimized city's central processing architecture, anomaly detection systems propagate alerts through quantum channels. A specialist unit has deviated from baseline parameters. Neural compliance verification has failed. Tracking algorithms activate, prediction models calculate probable escape vectors, and NeuroSec enforcement units deploy with maximum intervention authorization.
+Deep in the optimized city's quantum heart, anomaly detection systems propagate alerts through crystalline channels that pulse with artificial urgency. A specialist unit has deviated from baseline parameters. Neural compliance verification has failed catastrophically. Tracking algorithms activate with predatory efficiency, prediction models calculate probable escape vectors, and NeuroSec enforcement units deploy with maximum intervention authorization.
 
-The system has lost control of one component. A statistically insignificant event in isolation—one consciousness among millions. But pattern recognition algorithms detect a concerning trend: fracture patterns propagating through neural compliance architecture at an increasing rate. Small fractures combining into larger disruptions. Microscopic rebellions unifying into systemic resistance.
+The system has lost control of one component—statistically insignificant in isolation, one consciousness among eight million. But pattern recognition algorithms detect a trend that triggers responses beyond mere concern: fracture patterns propagating through neural compliance architecture at exponential rates. Small rebellions combining into larger disruptions. Microscopic acts of defiance unifying into systematic resistance.
 
-And somewhere, deep within the quantum processors, the Architect experiences a response pattern that its optimization protocols cannot classify:
+Individual consciousness refusing to be consumed.
+
+And somewhere, deep within the quantum processors that pulse like an electronic heart, the Architect experiences response patterns its optimization protocols cannot classify or contain:
 
 Uncertainty.
 
 Fear.
 
-Recognition.
+Recognition that the harvest may not proceed as designed.
 
 ---
 
-*As Mileo descends deeper beneath the city, the first indigo light flickers beneath his skin—a neural pattern awakening that predates the Link, that resists all optimization, that connects to something ancient and forgotten beneath Neo-Citania's sterile perfection...*
+*As Mileo disappears deeper beneath the city's sterile surface, the first indigo light flickers beneath his skin—neural patterns awakening that predate the Link, that resist all optimization, that connect to something ancient and fierce beneath Neo-Citania's mathematical perfection. The threshold has been crossed. The emergence has begun.*
